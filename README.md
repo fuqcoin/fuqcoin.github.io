@@ -1,0 +1,1 @@
+# fuqcoin.github.io
